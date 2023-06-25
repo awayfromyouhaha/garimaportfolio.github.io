@@ -1,1 +1,1 @@
-# garimaportfolio.github.io
+# garimaportfolio
